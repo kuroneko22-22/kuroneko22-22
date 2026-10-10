@@ -1,1 +1,1 @@
-<h1>kuroneko packを作って配布していたアカウントが死んだのでこっちで配布します</h1>
+<h1>japanese cat</h1>
